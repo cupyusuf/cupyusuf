@@ -1,4 +1,4 @@
-### Hi :heart: :trollface:
+### Hi :heart: 
 
 📈 GitHub Stats
 <br/>
